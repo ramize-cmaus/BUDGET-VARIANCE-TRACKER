@@ -132,5 +132,5 @@ Skill-up: Tally | QuickBooks | Microsoft Dynamics 365 | UAE VAT & Corporate Tax 
 
 Open to Financial Analyst, FP&A, and Management Accounting internship roles.
 
-**LinkedIn:** https://www.linkedin.com/in/muhammed-ramees-b087bb259?utm_source=share_via&utm_content=profile&utm_medium=member_android**
+**LinkedIn:** https://www.linkedin.com/in/muhammed-ramees-cmaus2026ldn/**
 **Email:**rameez.cmaus@gmail.com
